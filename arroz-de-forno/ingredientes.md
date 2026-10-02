@@ -1,0 +1,2 @@
+* agua
+* grãos de arroz
